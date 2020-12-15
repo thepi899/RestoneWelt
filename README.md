@@ -1,3 +1,3 @@
 # RedstoneWelt
-### by Twexsio
-[GitHub](http://github.com)
+### by @twsiterry
+[PlanetMinecraft](https://www.planetminecraft.com/member/twexsooo/)
